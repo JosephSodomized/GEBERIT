@@ -1,2 +1,0 @@
-# GEBERIT
-mailing for company
